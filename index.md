@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Hi Ho, Hi Ho! Welcome!
 
-I'm glad you are here. I plan to talk about ...
+It's Off to Work We go!
